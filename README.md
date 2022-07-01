@@ -1,1 +1,0 @@
-# thinktec_home
